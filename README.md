@@ -13,7 +13,7 @@ Awesome random stuff to make life easier
 - Keep breadbits out of your jam bottle by using a spoon to put the jelly onto the toast or whatever, use a knife to spread it around (use 2 utensils)
 - Replace nasty kitchen sponges with a non-scratch scourer cloth, saves money, cleans better, no smelly stuff to replace - _[I like this one](https://www.amazon.com/Ultra-Durable-Scrubber-Washing-Dishes/dp/B00F9S0S4G/ref=sr_1_1_sspa?keywords=crown+choice+scourer+cloth&qid=1671298137&sr=8-1-spons&psc=1&smid=A2HDZYBAF00GSM&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUFCVlBKMUpNMjlYT1cmZW5jcnlwdGVkSWQ9QTAxMDA5MDYzOU5CRjlORERFWEM1JmVuY3J5cHRlZEFkSWQ9QTA0NTc5ODQ3MTAxTUxBSThaRDkmd2lkZ2V0TmFtZT1zcF9hdGYmYWN0aW9uPWNsaWNrUmVkaXJlY3QmZG9Ob3RMb2dDbGljaz10cnVl)_
   - [I also like this one by Lunatec that is smaller for camping](https://www.amazon.com/Lunatec-Odor-Free-Dishcloths-scrubber-scouring/dp/B004QIXO82/ref=sr_1_2?keywords=Lunatec&qid=1671298323&sr=8-2&th=1)
-  - Put cupcake holders (buy in a grocery baking aisle) in your car cup holders to trap food spills; just remove when dirty
+- Put cupcake holders (buy in a grocery baking aisle) in your car cup holders to trap food spills; just remove when dirty
 ## Fun things
 * Grapefruit juice makes caffeiene act longer / stronger - _[Article](https://www.mashed.com/230469/this-is-what-happens-when-you-add-grapefruit-juice-to-coffee/)_ - Oh, it might also potentially _kill_ you if you take prescrition meds (check the label❗)
 </br>
