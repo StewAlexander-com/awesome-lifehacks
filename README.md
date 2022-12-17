@@ -11,7 +11,7 @@ Awesome random stuff to make life easier
 
 
 ## Fun things
-* Grapefruit juice makes caffeiene act longer / stronger [Article](https://www.mashed.com/230469/this-is-what-happens-when-you-add-grapefruit-juice-to-coffee/)
+* Grapefruit juice makes caffeiene act longer / stronger - _[Article](https://www.mashed.com/230469/this-is-what-happens-when-you-add-grapefruit-juice-to-coffee/)_
 </br>
 
 ----
