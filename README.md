@@ -6,6 +6,7 @@ Awesome random stuff to make life easier
 * [Clean up your computer workspace with a server rack cable manager](https://www.youtube.com/shorts/rKJFr5UDh8o) - _cable tip_
 * [Use a binder clip to keep cables from falling to the floor](https://www.youtube.com/watch?v=WKxT84h8his)
 * [Organize your cord drawer with this pro wrap trick](https://www.youtube.com/watch?v=mI_RFU8mgUs), [_or this one_](https://www.youtube.com/watch?v=w01qEy2YWeo)
+* [Make a bed in 5 minutes](https://www.youtube.com/watch?v=HtHM1mgt7Yk) - _great putting on a pillow case hack_
 ## Tidbits and other random stuff to make life easier
 - If you like to make waffles or pancakes with syrup (_like I do_)
   - Instead of buttering the pancake smearing it everywhere wrecking the food, put the butter in a saucer or cup, pour over the syrup, heat it, stir the mixture and then pour it on the pancakes (keeps the food from getting messed up, spreads the butter evenly)
