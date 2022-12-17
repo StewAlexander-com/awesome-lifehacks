@@ -9,6 +9,10 @@ Awesome random stuff to make life easier
 ## Tidbits and other random stuff to make life easier
 * If you make waffles or pancakes with syrup, instead of buttering the food, put the butter in a saucer or cup, pour over the syrup heat it, stir the mixture -- keeps the food from getting messed up, spreads the butter evenly
 
-## Fun things
 
+## Fun things
+* Grapefruit juice makes caffeiene act longer / stronger [Article](https://www.mashed.com/230469/this-is-what-happens-when-you-add-grapefruit-juice-to-coffee/)
+</br>
+
+----
 **This is always under construction, feel free to add your own!**
